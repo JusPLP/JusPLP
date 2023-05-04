@@ -1,5 +1,4 @@
 ### i use arch btw 
-
 german
 
 based bspwm user
