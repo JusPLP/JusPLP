@@ -1,8 +1,7 @@
 ### i use arch btw 
-german
+- german
+- bspwm user
 
-based bspwm user
-
-3000 reddit karma (thanks unixporn)
+- discord: JusPLP?#3493
 
 ![image](https://github.com/JusPLP/JusPLP/assets/106280544/dcd998a0-d5e2-47a0-b32b-c6f221d86d0f)
