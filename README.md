@@ -1,3 +1,3 @@
 ### i use arch btw 
 
-![image](https://github.com/JusPLP/JusPLP/assets/106280544/dcd998a0-d5e2-47a0-b32b-c6f221d86d0f)
+![3446BE45-B06B-4B41-8C8A-D160A834B3D2](https://github.com/JusPLP/JusPLP/assets/106280544/8d4c5cfc-c0fc-4501-9e3b-b867b072f090)
