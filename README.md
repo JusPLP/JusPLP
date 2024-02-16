@@ -1,1 +1,2 @@
-![3446BE45-B06B-4B41-8C8A-D160A834B3D2](https://github.com/JusPLP/JusPLP/assets/106280544/8d4c5cfc-c0fc-4501-9e3b-b867b072f090)
+i use arch btw
+
